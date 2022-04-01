@@ -1,4 +1,4 @@
 # git-group-practice
 
 
-NO MINE IS BETTER!!!
+NO, MINE IS BETTER!!!
