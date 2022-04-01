@@ -1,10 +1,4 @@
 # git-group-practice
 
 
-adadaskjdbaskljdbalkdjhbalkdjbaskdjlhbawdaw
-asdalkjfhafijabwfkljbafkajbf
-
-
-
-
-daaaaaaaaaaaaaaaaaaaawwwwwwwdasdawdawdwadnmawfihaefjhkaefujhgavefdujhkvawdughiawvduawvduigawvdiuawyvdiuawvduiawyvdauwiyvdawuydawd
+NO MINE IS BETTER!!!
